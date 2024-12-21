@@ -1,0 +1,1 @@
+# Archivo-emulador-de-nintendo-switch-
